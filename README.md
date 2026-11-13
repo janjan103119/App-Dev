@@ -1,1 +1,1 @@
-My first repository
+My favorite movie is The Cat in the Hat by Dr. Seuss because it is fun, imaginative, and full of exciting adventures. I love how it teaches us to embrace creativity, enjoy life, and find happiness in unexpected moments.
